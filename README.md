@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sajjad
+- 👀 I’m interested in Programming and stuff
+- 🌱 I’m currently learning DSA
+- 📫 How to reach me ig: sonicbaka
