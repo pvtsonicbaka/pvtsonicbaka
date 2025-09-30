@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sajjad
 - 👀 I’m interested in Programming and stuff
-- 🌱 I’m currently learning DSA
-- 📫 How to reach me (u cant)
+- 🌱 I’m currently hacking btw
+- 📫 How to reach me just visit my website:)
